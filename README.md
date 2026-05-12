@@ -11,7 +11,7 @@
   ## 👀 About Me
   #### :raising_hand: I'm a UI&UX designer from South Korea.<br/>
   #### :fire: I'm aiming to become a publisher who publishes using UIs I have designed.<br/>
-  #### :mortar_board: Associate Degree from Baehwa Women's University(BWUU)
+  #### :mortar_board: Expected to obtain an Associate's degree from baewha Womans University (BWUU)
   <br/>
   <br/>
   
